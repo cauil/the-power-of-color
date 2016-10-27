@@ -1,1 +1,3 @@
-This is the answer to "What is XYZ?".
+Sue Timney:
+
+First, use one tone consist of two contrast colors, for example, red and black, white and black. Then move to one other tone.
